@@ -1,1 +1,0 @@
-# tedaky.github.io
